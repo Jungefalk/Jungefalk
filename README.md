@@ -7,4 +7,4 @@
 
 🐳 Fun facts om mig: Jag kan joddla och jag är grym på 5-kamp!
 
-🦈 Min sämsta egenskap: Dålig förlorare (och vinnare) på 5-kamp.  
+🦈 Min sämsta egenskap: Dålig förlorare på 5-kamp.  
